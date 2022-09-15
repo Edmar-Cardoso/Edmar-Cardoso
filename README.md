@@ -1,4 +1,4 @@
-### Oii! Eu sou o Edmar Cardoso 👋
+### Oii! Eu sou o Edmar Cardoso, seja bem-vindo(a) 😁👋
 
 ##
 
